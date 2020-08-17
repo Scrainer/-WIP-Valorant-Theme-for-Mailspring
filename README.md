@@ -1,0 +1,1 @@
+# Valorant-Theme-for-Mailspring
